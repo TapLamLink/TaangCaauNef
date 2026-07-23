@@ -1,2 +1,0 @@
-# TaangCaauNef
-CHOCAUDO
